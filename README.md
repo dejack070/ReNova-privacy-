@@ -44,7 +44,7 @@ picture of user the user must be the as the verified face.
 no user is allowed to make use of fake profile and photos on our ReNova
 8. everything done on renova must be real,no lies ,no fake story
 9. content creator are made to be real,no AI video or pictures is allowed on ReNova
-10. ReNova is bringing the world to a realistic system .
+10. ReNova is bringing the world to a realistic system.
 Contact Us
 For questions or support, contact us at appointedkindnessjaja@gmail.com.
 
