@@ -1,4 +1,4 @@
-Privacy Policy
+Privacy Policy.
 At ReNova, developed by Dejack Digital Global Tech Systems, your privacy is important to us. This Privacy Policy explains how we collect, use, and protect your personal information when you use our social media platform.
 
 Information We Collect
@@ -34,18 +34,18 @@ Users retain ownership of content they create but grant ReNova a license to disp
 We reserve the right to suspend or terminate accounts that violate these terms or engage in fraudulent or abusive behavior.
 
 4. Limitation of Liability
-Dejack Digital Global Tech Systems is not responsible for any issues but if you have any problem why using our application please contact us for help 
+Dejack Digital Global Tech Systems is not responsible for any issues but if you have any problem why using our application please contact us for help.
 
 5. Changes to Terms
 We may update these Terms from time to time. Continued use of ReNova means you accept any future modifications.
-6.Renova don't accept any form of scams and fake profiles and fake pictures
+6.Renova don't accept any form of scams and fake profiles and fake pictures.
 7.users must verify their face before accessing our app.
 picture of user the user must be the as the verified face.
-no user is allowed to make use of fake profile and photos on our ReNova
+no user is allowed to make use of fake profile and photos on our ReNova.
 8. everything done on renova must be real,no lies ,no fake story
-9. content creator are made to be real,no AI video or pictures is allowed on ReNova
+9. content creator are made to be real,no AI video or pictures is allowed on ReNova.
 10. ReNova is bringing the world to a realistic system.
 Contact Us
 For questions or support, contact us at appointedkindnessjaja@gmail.com.
 
-© 2025 Dejack Digital Global Tech Systems
+© 2025 Dejack Digital Global Tech Systems.
