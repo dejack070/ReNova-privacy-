@@ -51,13 +51,11 @@ Dejack Digital Global Tech Systems is not responsible for any issues but if you 
 9. Changes to Terms:
     
 We may update these Terms from time to time. Continued use of ReNova means you accept any future modifications.
-6.Renova don't accept any form of scams and fake profiles and fake pictures.
-7.users must verify their face before accessing our app.
+6.Renova don't accept any form of scams and fake profiles and fake pictures.users must verify their face before accessing our app.
 picture of user the user must be the as the verified face.
 no user is allowed to make use of fake profile and photos on our ReNova.
-11. everything done on renova must be real,no lies ,no fake story.
-12. content creator are made to be real,no AI video or pictures is allowed on ReNova.
-13. ReNova is bringing the world to a realistic system.
+ everything done on renova must be real,no lies ,no fake story. content creator are made to be real,no AI video or pictures is allowed on ReNova.
+ ReNova is bringing the world to a realistic system.
 Contact Us
 For questions or support, contact us at appointedkindnessjaja@gmail.com.
 
