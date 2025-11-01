@@ -1,5 +1,5 @@
 
-Privacy Policy
+Privacy httl.
 At ReNova, developed by Dejack Digital Global Tech Systems, your privacy is important to us. This Privacy Policy explains how we collect, use, and protect your personal information when you use our social media platform.
 
 Information We Collect
